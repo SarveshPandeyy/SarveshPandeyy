@@ -18,7 +18,7 @@
 
 - 📫 How to reach me **pandeysarvesh090@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/11IJtJOAZbT8OzAo1MK4YnIwX7r0QnK_m/view?usp=sharing](https://drive.google.com/file/d/11IJtJOAZbT8OzAo1MK4YnIwX7r0QnK_m/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1vaVDig2YqOfwCMqSEsrA123EbuGPI2mA/view?usp=drivesdk)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
